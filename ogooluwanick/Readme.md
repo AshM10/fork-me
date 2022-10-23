@@ -1,1 +1,2 @@
-Learning anout forking, looking forward to contributing more lol 🔥
+# 👋🏻 Hello Hello Hello, We outche!
+Learning about forking, looking forward to contributing more lol 🔥
